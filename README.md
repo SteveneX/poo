@@ -1,4 +1,0 @@
-# exercicepoo
-# exercicepoo
-# poo
-# poo
